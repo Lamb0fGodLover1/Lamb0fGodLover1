@@ -11,7 +11,7 @@
 </p>
 <br>
 <p>
-(If you were to ever look for me on PonyTown I mainly stay in the Bakery in a oc named Symmetry)
+(If you were to ever look for me on PonyTown I mainly stay in the Bakery my ocs are ranged from Mother Aqua,Mummy Dust,Corpse Painted Bride, and MIC Symmetry)
 
 (some of my hobbies are playing guitar,skating,drawing and listening to music XD!)
 
