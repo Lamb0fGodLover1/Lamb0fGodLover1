@@ -17,7 +17,7 @@
 
 (Some people that I wish to not interact with me are Pedos,Creeps,Homophobics,Transphobics or anyone that harms others/don't like when others express themselves!)
 
-(My Discord is number1panterafan for right now but I change it a lot so if you ever wish to add me find me in the bakery and ask :>!)
+(My Discord is lambofgodlover1 but I change it a lot so if you ever wish to add me find me in the bakery and ask :>!)
 </p>
 <br>
 <p>
